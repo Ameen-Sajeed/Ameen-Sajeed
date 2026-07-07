@@ -21,5 +21,5 @@
 
 ---
 📫 **Let's connect**
-- LinkedIn: https://www.linkedin.com/in/muhammed-ameen
+- LinkedIn: https://www.linkedin.com/in/muhammed-ameen-83bba71ba/
 - Email: ameenputhalath789@gmail.com
